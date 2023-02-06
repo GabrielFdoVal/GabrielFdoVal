@@ -9,7 +9,7 @@
    
  Adoro a área de TI e estou sempre tentando aprender mais!
  
-:postbox: Contatos gabrielfdoval1@gmail.com :incoming_envelope: ou https://www.linkedin.com/in/gabriel-do-val-381625186/ 
+:postbox: Contatos gabrielfdoval1@gmail.com :incoming_envelope: ou https://www.linkedin.com/in/gabriel-do-val
  
  <div align="center">
  	Outros conhecimentos
